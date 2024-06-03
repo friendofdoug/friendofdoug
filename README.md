@@ -28,7 +28,7 @@
 - Doug taught me what it means to hold onto your natural curiosity. How to be a mentor. How to be a friend.
 - He tried to get me to stop giggling so much, a trait he would tease hurt his ears. I never have.
 - Thanks to him, I've never stopped dreaming and scheming.
-- I wouldn't be creating a Github, no matter how meager it might end up being, if it weren't for Doug.
+- I wouldn't be creating a GitHub, no matter how meager it might end up being, if it weren't for Doug.
 - In a sense everything I put here will be an attempt to get closer to his shadow, to say thank you, to stay curious, to extend his legacy through curiosity and creation.
 - The build season may end, but we're never done building.
 - My head has remained in the clouds since I met Doug, in large part thanks to Doug.
