@@ -38,7 +38,7 @@
 - Thank you, Doug.
 - 👀 I’m interested in the biology of social insects, particularly their caste systems. Creating Alfred workflows and other productivity tools that will help make people's everyday lives better, easier, and/or more fulfilling. Creation in general.
 - Bioinformatics. Using computers to learn more about nature. Live coding graphics and/or electronic music. Using computers for journalism.
-- 🌱 I’m currently learning basics of creating Alfred workflows.
+- 🌱 I’m currently learning basics of creating Alfred workflows to make my life easier (and hopefully yours)!
 - 💞️ I’m looking to collaborate on anything that might seem interesting! I'm still learning a lot and I'd love to help however I can with any project that seems interesting and isn't ghoulish.
 - 📫 How to reach me ... can you comment on here? Through comments if so.
 - 😄 Pronouns: she/her
