@@ -17,7 +17,6 @@
 - His patents hung on the wall outside his recording studio. My sister, mom, and I were in awe of how someone could be so creative and industrious to have so many.
 - He would get pizza and practice guitar every Friday night, a routine I find admirable and aspirational as I often live far more chaotically and without any sort of routine.
 - He built an extremely intricate model railroad of his hometown, which my mom and I passed through on my way to my first year of college, just a few weeks after he passed away.
-- I always liked the way he talked about his wife. He always had an amazed look in his eyes when he brought up something she was doing. I didn't have many examples of healthy romantic partnerships in my life, and it made me happy to hear someone talk about how amazed they were with their wife.
 - I was interested in honeybees, a project he and his partner shared, and he always left the offer open for me to go see theirs. A few years later I would study honeybees in my biology course, an experiment that lit me up and sustained my curiosity even today.
 - When I left for college, he asked what I'd be studying.
 - "Neuroscience." I replied.
